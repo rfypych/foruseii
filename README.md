@@ -8,4 +8,7 @@ once again, sorry if it's not good, 'cause i also still learning, hehee XD...
 
  thank u very very much for all, sei... 
 
-i love uuuuuuu 🫶🫶🫶🫶
+love uuuuuuu 🫶🫶🫶🫶
+
+pwncet:
+https://rfypych.github.io/foruseii/
