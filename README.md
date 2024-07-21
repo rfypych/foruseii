@@ -10,5 +10,7 @@ once again, sorry if it's not good, 'cause i also still learning, hehee XD...
 
 love uuuuuuu 🫶🫶🫶🫶
 
+apwsi njir ropi sok inggrws
+
 pwncet:
 https://rfypych.github.io/foruseii/
